@@ -40,8 +40,8 @@ Soy un estudiante de **Ingeniería en Desarrollo de Software Multiplataforma** a
 
 No dudes en contactarme:  
 - 💌 Correo: deluisfloresfranciscoa@gmail.com  
-- 📘 [Facebook](https://www.facebook.com/FranciscoDeLuis)  
-- 📷 [Instagram](https://www.instagram.com/francisco_de_luis_1)  
+- 📘 [Facebook] Francisco De Luis  
+- 📷 [Instagram] francisco_de_luis_1 
 
 ¡Gracias por visitar mi perfil! 😊  
 Siempre abierto a nuevas oportunidades y conversaciones. 🚀
